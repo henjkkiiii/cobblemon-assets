@@ -1,0 +1,1 @@
+Cobblemon resource pack assets.
